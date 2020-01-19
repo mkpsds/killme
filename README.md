@@ -1,0 +1,2 @@
+# killme
+I want die
